@@ -1,4 +1,4 @@
-# Reading-List
+# Reading List
 This is a list of books I've read or started and didn't finish.
 
 ## 2014
