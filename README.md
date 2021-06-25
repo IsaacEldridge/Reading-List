@@ -232,3 +232,5 @@ This is a list of books I've read or started and didn't finish.
 * The Anatomy Lesson
 * Middle Passage
 * The Committed
+* It
+* Howard and Charles at the Factory
