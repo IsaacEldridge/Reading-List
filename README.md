@@ -234,3 +234,58 @@ This is a list of books I've read or started and didn't finish.
 * The Committed
 * It
 * Howard and Charles at the Factory
+* Massive Cleansing Fire
+* Hashtag good guy with a gun
+* Vernon Subutex 3
+* Nightbitch 
+* Animal
+* Three Women
+* The War for Gloria 
+* The Morning Star
+* Mr. Peanut
+* Crossroads
+* Cloud Cuckoo Land
+* Intimacies
+* The Anomaly 
+
+## 2022
+
+* Lost Empress
+* A Calling For Charlie Barnes
+* Mouth to Mouth
+* Fake Accounts (dnf)
+* Fourth of July Creek (dnf)
+* High-rise
+* What If We’re Wrong
+* The Candy House
+* The Nineties
+* Be Brief and Tell Them Everything
+* Blood’s a Rover
+* Anthem (dnf)
+* Slaughterhouse Five
+* Bubblegum
+* The Mezzanine
+* The Tunnel
+* Autobibliography
+* Novel Explosives (dnf)
+* The Hour of the Star
+* White
+* Blood and Guts in High School (dnf)
+* America and the Cult of the Cactus Boots
+* Magnetic Fields 
+* The Apology
+* Ducks, Newburyport 
+* Imperial Bedrooms
+* A Naked Singularity 
+* The Invented Part
+* The Passenger
+* Stella Maris
+
+## 2023
+
+* Solenoid 
+* A Feast of Snakes
+* Glamorama
+* Feebleminded
+* Hurricane Season 
+
