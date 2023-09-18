@@ -287,5 +287,36 @@ This is a list of books I've read or started and didn't finish.
 * A Feast of Snakes
 * Glamorama
 * Feebleminded
-* Hurricane Season 
+* Hurricane Season
+* The Dreamed Part
+* The Netanyahu's
+* The Novelist
+* Tender
+* The Shards
+* The Road
+* Satantango
+* Shark
+* Dead Stars (DNF)
+* Four by Four
+* Elementary Particles
+* By Night in Chile
+* The Remembered Part
+* Phone
+* The Possibility of an Island
+* Journey to the End of Night (DNF)
+* The Drop Edge of Yonder
+* Neutral Evil
+* The Summer He Didn't Die
+* Dead Babies
+* Abbot Awaits
+* Whatever
+* Atomik Aztecs (DNF)
+* Hollywood
+* Tropic of Cancer
+* The Belan Deck
+* Not Even the Dead
+* The Tropic of Capricorn
+* Baron Wenckheim's Homecoming
+* Platform
+* Mount Chicago (DNF) 
 
